@@ -1,1 +1,1 @@
-# Amazon-prime-video-case-study
+# Amazon-Prime-India
